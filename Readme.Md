@@ -1,4 +1,4 @@
-![](https://tse1.mm.bing.net/th?id=OIP.Ofa18z2RGXvRPHQhHmIjGQHaIP&pid=15.1)
+![](https://disk.yandex.ru/i/knr6Xp8-oDovOw)
 
 ### Привет!
 ## Меня Зовут Игорь!
